@@ -7,6 +7,7 @@ intsmaze-刘洋 http://www.cnblogs.com/intsmaze/ <br>
 netoxi http://www.cnblogs.com/netoxi/ <br>
 molyeo http://www.cnblogs.com/molyeo/ <br>
 别先生 http://www.cnblogs.com/biehongli/ <br>
+sinodzh http://www.cnblogs.com/mephisto/ <br>
 
 
 
